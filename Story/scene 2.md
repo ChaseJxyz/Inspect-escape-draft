@@ -1,5 +1,5 @@
-After a fair bit of thought \(and consultation with the universe\) you decide to choose the ```middle door```.
+After a fair bit of thought \(and consultation with the universe\) you decide to choose the ```left door```. Something was telling you that choosing the middle door was a bad idea, but the leftmost one seems pretty good!
 
-It opens with a spine-chilling creak...and unleashes horrors so incomprehensible that you can't even put words to it. Being dead also makes it really hard to put words to it, too.
+Before you open the door, a voice appears in your head.
 
-THE END \(of the main timeline\).
+>Halt! Before you enter that door, know this: behind the middle door is certain death, so you cannot choose it. Do you keep your choice? Or do you choose the leftmost door instead?
